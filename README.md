@@ -1,1 +1,1 @@
-My first readme
+For the lord is good
